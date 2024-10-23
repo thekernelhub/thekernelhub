@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning how to solve complex problems for others
 - 💞️ I’m looking to collaborate on complex problems 
 - 📫 How to reach me: thekernelhub@gmail.com
-- 😄 Pronouns: ...
+- 😄 Pronouns: Batman/Vengence/Dark Knight
 - ⚡ Fun fact: We have ambitious goal to help every business have an online presence
 
 <!---
